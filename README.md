@@ -1,1 +1,1 @@
-not gay
+Account no longer in use.
